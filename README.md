@@ -1,5 +1,5 @@
 #DOCUMENTACIO
->Joan Martí
+>JOAN MARTÍ
 >17/10/2025
 >Institut mollerussa
 
